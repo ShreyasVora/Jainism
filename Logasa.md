@@ -1,0 +1,25 @@
+# Logasa
+
+Logasa ujo agaro, dhhama thithha yare jine arihanthe
+Kitha isam chaui sampi kevali
+Usabha majiyam chavande
+Sambhava mabhinam dhanam cha
+Sumeimcha paumaa paham supaasam
+Jinancha chandha paham vandhe
+
+Suvi incha poofa dhantha
+See ala seejansa
+Vaasu pujamcha vimala manamtha chajinam dhhamam santimcha vandhaami
+
+Koonthhoom aramcha mali vande munisuvayan, nami jinamcha vandhaami
+Ritthnemi paasam thaha vadhhamaanam cha
+Evamaye abhi thhoo-a
+Vihu yaraya malaa, pahina jarmarnaa, chaui sampi jinavaraa
+Thithha yaraame pasiyanthu
+Kithiya vandhiya mahiaa
+Je e logas uthamaa sidhhaa
+Aaruga bohilaabho, samaahi vara muthamam dhinthu
+Chandhesu nimalayaraa
+
+Aaychesu ahiyam payaa sayraa
+Saagara vara gambhiraa, sidhhaa sidhhi mamadhisanthu.

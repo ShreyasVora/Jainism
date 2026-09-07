@@ -1,0 +1,12 @@
+# Naukaar mantra
+
+Namo arihanthaanam
+Namo sidhhaanam
+Namo aayariyaanam
+Namo uvvajaayaanam
+Namo loye savva saahunam
+
+Eso pancha namukaaro
+Savva paava panaasano
+Mangalaanamcha save sing
+Paddhamam havai mangalam.
