@@ -51,7 +51,7 @@ Nivithigichhaa amuudhha ditthia,
 Uvavuha thhiri karne,
 Vachhala pabhaave attha.
 
-Dhev guru dharma thane vise, nisank panu na kidhhu. Thathaa ekaanth nischai na kidhho.
+Dhev guru dharma thane vise, nisank panu na kidhhu. Thathhaa ekaanth nischai na kidhho.
 Dhharma sabandhhi ar thane vise nisandheha budhhi dhhari nahi.
 Saddhhi saadhhvinaa mal marine gaathra dhekhi, dhurganchhaa nipjaavi.
 Koo chaarithriyaa dhekhi, chaarithriyaa upar abhaav huvo, mithhyaa thvee thani pujaa prabhaavnaa dhekhi,moddh dhrasti panu kidhhu.
@@ -181,3 +181,107 @@ Motakoo jootthu boliyaa. Haathh pag thani gaar dhidhhi.
 Karkaraa modiyaa, marma vachan boliyaa.
 
 Bije sthhul mrushaa vaadh vishaio anero, *je koi athichaar …*
+
+## 8. Thrije sthhul
+
+Thrija sthhul adhathaadhaan, viraman vrathe paanch athichaar.
+Thenaa hada paoge, ghar baahir kshethra khale paraai vasthu ana mokli lidhhi, vaavari, choraai vasthu vahori.
+Chor dhhaar prathiye sanketh kidhho. Thehna sambal dhidhhoo, theheni vasthu lidhhi, virudhha raajyaathi krum kidhho.
+
+Navaa puraanaa, saras viras, sajiv nirjiv, vasthu naa bher sambher kidhhaa.
+Koore kaatle thole maane maape vahoriaa. Dhaan chori kidhhi, koonhi ne lekhe varaasiyo.
+Saate laanchh lidhhi, kooro karho kaaddhio, vivaas ghaath kidhho.
+
+Parvanchanaa kidhhi, paasang kooraa kidhhaa. Daandi charaavi lehake thrahake kooraa kaatlaa maan maapaa kidhhaa.
+Maathaa pithaa puthra mithra, kalathra vanchi koonhi ne dhidhhoo. Joodhi gaantth kidhhi.
+Thaapan oravi koonhi ne lekhe palekhe bhoolaaviyoo, pari vasthu oravi lidhhi.
+
+Thrije sthhul adhathaadhaan viraman vrath vishaio anero, *je koi athichaar …*
+
+## 9. Chothhe
+
+Chothhe swadhaaraa santhosh parsthrigaman, viraman vrathe paanch athichaar.
+Apari gharaai thara, apari gruhithaa gaman, itvara pari gruhithaa gaman kidhhu.
+Vidhhvaa veshiyaa parasthree koolaanganaa swadhaaraa shock-thane vishe dhrashti vipariyaas kidhho. Saraag vachan boliyaa, aattham chaudhas aneri parva thithhi na nium lai bhaangiyaa.
+
+Ghar gharanaa kidhhaa karaaviyaa, vara vahu vakhaniyaa, koovi kalp chinthaviyo, ananga kridaa kidhhi, sthrinaa angopaang nirakhiyaa, paraayaa, vivaah, jodiyaa, ddhinglaa ddhingli paranaaviyaa.
+
+Kaam bhog thane vishe thivra abhilaash kidhho. Athikrum vyathikrum, athichaar anaachaar, suhane svapnaan thare hoovaa.
+Koo svapna laandhhiyaa. Nut vit sthrishu haashu kidhhu.
+
+Chothhe swadhaaraa santhosh parsthrigaman viraman vrath vishaio anero, *je koi athichaar …*
+
+## 10. Paanchme
+
+Paanchme parigrah parimaan vrathe paanch athichaar.
+Dhana dhana khitha vathhu, dhan dhaanya kshethra vaasthu, rupya, suvarna, koopya, dveepadh, chathuspadh.
+E nau vidhh parigrah thanaa, nium uparaanth vrudhhi dhekhhi moorchhaa lage sankshep na kidhho.
+
+Maathaa pithaa puthra sthri thane lekhe kidhho. Parigrah parimaan lidhho nahi. Lai ne paddhio nahi. Paddhvu visaariyu alidhhu meliyoo nium visaariyaa.
+
+Paanchme parigrah parimaan vrath vishaio anero, *je koi athichaar …*
+
+## 11. Chhatthe
+
+Chhatthe dhick parimaan vrathe paanch athichaar.
+Gamna sau parimaane, urdhhva dhisi, adhho dhisi, thiriyag dhisi-e, jaavaa aavaa thanaa nium lai bhaangiyaa.
+
+Anaa bhog visthruth lage adhhik bhoomi gayaa.
+Paatthau vani aaghi pachhi mokli.
+Vahaan vyavasaaye kidhho.
+Varshaa kaare gaam tharu kidhhu.
+Bhoomi kaa ek gamaa sankshepi biji gamaa vadhhaari.
+
+Chhatthe dhick parimaan vrath vishaio anero, *je koi athichaar …*
+
+## 12. Saathme
+
+Saathme bhogo pabhogo viraman vrathe bhojan aasrai paanch athichaar, ane karma hoothi pandhar athichaar evam vis athichaar.
+
+Sachitha dhava vigai,
+Vaana hatham bola vathha koosoo mesoo,
+Vahaana sayana vile vana,
+Bambha dhisin haana bhathesu.
+
+E chaudh nium dhin gath raathri gath lidhhaa nahi. Laine bhaangiyaa. Baavis abhakshya, bathris anantha kaay maahi:
+Aadhu, mooraa, gaajar, pinda pindaaru, kachooro, surahna, kooni aambli, garo, vaagharadaa khaadhhaa.
+
+Vaasi katthor, pori rotli, thran dhivas no odhan lidhhu.
+Madhhoo, mahooraa, maakhan, maati, vangana, pilu pichu pampotaa, visha-him, karahaa, gholavadaa, ajaaniyaa fir, thimbaru, aambal bor, kaachoo mitthu, thil khaskhas kotthimbadaa khaadhhaa.
+
+Raathri bhojan kidhhaa. Laghbhag veraae maaru kidhhu. Dhivas vinaa uge siraaviyaa.
+
+Thathhaa karma thaha pandhar karmaadhaan. Ingaal gamme, vana kamme, saari kamme, bhaari kamme, fori kamme. E paanch karma.
+Dhantha vaanijya, lakha vaanijya, rasa vaanijya, kesa vaanijya, visa vaanijya. E paanch vaanijya.
+Jantha pilana kamme, nilanchhana kamme, dhavagi dhaavaniyaa, saradhaha thalaaya sosahniyaa, asai posaninyaa. E paanch saamaanya, evam pandhar karmaadhaan.
+Bahu saavadh mahaarambh raangan lihaalaa karaaviyaa.
+
+It nibhaadaa pachaaviyaa. Dhaani chanaa pakhvaan kari vechiyaa. Vaasi maakhan thavaaviyaa. Thil vahoriyaa, faagan maas uparaanth raakhiyaa. Dhalidho kidhho, angitthaa karaaviyaa.
+
+Svaan, bilaadaa, sooraa saalahi, poshiyaa. Aneraa je kaai bahu saavadh khar karmaadhik samaa chariyaa, vaasi gaar raakhi, lipne gupne mahaarambh kidhho.
+Ana shodhhiyaa choolaa sandhhrookiyaa, ghee thel gor chaas thanaa, bhojan ooghaaraa mookiyaa. The maahi maakhi koonthi undhara garori pari, kiri chari, theni jainaa na kidhhi.
+
+Saathme bhogo pabhogo viraman vrath vishaio anero, *je koi athichaar …*
+
+## 13. Aantthme
+
+## 14. Nau-me
+
+## 15. Dhasme
+
+## 16. Agiyaarme
+
+## 17. Baarme
+
+## 18. Sanle shanaa
+
+## 19. Thapaachaar
+
+## 20. Abhiyanthar thap
+
+## 21. Viriyaachaar
+
+## 22. Naanaa-i
+
+## 23. Evam kaare
+
