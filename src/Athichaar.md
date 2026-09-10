@@ -58,7 +58,7 @@ Koo chaarithriyaa dhekhi, chaarithriyaa upar abhaav huvo, mithhyaa thvee thani p
 
 Thathhaa sangha maahe, gurna vantha thani anupabruhnaa kidhhi.
 a-sthirikaran, a-vaathsalya, a-prithi, a-bhakthi nipjaavi, a-bahumaan kidhhu.
-Dhev dhravya bhakshitha upekshith,
+Dhev dhravya, guru dhravya, gnaan dhravya, saadhhaaran dhravya, bhakshitha upekshith,
 Pragnaa paraadhhe vinasiyo, vinsthaa uvekhiyo, chhathi shakthi-e saar sambhaar na kidhhi.
 
 Thathhaa saadhharmik saathhe, kalaha karmabandhha kidhho.
@@ -151,4 +151,33 @@ Vahabandhhi chhavichhe-e, dhvee padh chathuspadh prathiye, rees vase gaaddho gha
 Adhhik bhaar ghaaliyo, nirlanchhan karma  kidhhaa. Chaaraa paani thani veraa-e, saar sambhhaar na kidhhi. Lehane dhehane kinahi prathiye langhaaviyo. Thene bhookhe aapre jamiy(ae).
 Kanhe rahi maraaviyo, bandhhi khaani ghalaaviyo, sariyaa dhhaan thaaure naakhiya dharaaviyaa bhharadaaviyaa shodhhi navaavariyaa indhhan chhaana ana shodhhiyaa baariyaa the maahi saap vichhi khajooraa sarauraa maakar joovaa gingodaa saahathaa moohaa dhoohaviyaa, roore sthhaanak-e na mookiyaa.
 
+Kiri makori naa indaa vichhoiaa. Likhh fori uhde-hi.
+Kiri makori dhhimel kaathraa choodel pathangiaa ded-kaa adrasiyaa eeyar koonthaa dhaas masaa bug-a-tharaa maakhi thid pramukh jiv vinatthiyaa.
 
+Maaraa halaavthaa chalaavthaa pankhi chaklaa kaag thanaa indaa foriaa. Aneraa ekindhriyaanik jiv vinasiyaa chaapiyaa dhoohaviyaa.
+Kaay halaavthaa chalaavthaa paani chhaatth thaa, aneraa kaay kaam kaaj karthaa nirdhhvas panu kidhhu.
+Jiv rakshaa rudi na kidhhi.
+
+Sankhaaro sukaviyo, rudu galanu na kidhhu. Anagara paani vaavariyaa rudi jainaa na kidhhi.
+Loograa dhhoiaa khaatlaa thaaure naakhiya. Jaatakiyaa, jivaakul bhoomi lipi, vaasi gaar raakhi, dhanane khaandane lipre, rudi jainaa na kidhhi.
+Aattham chaudhas naa nium bhaangiyaa. Dhhooni karaavi.
+
+Pahele sthhul praanvathi paath viraman vrath vishaio anero, *je koi athichaar …*
+
+## 7. Bije sthhul
+
+Bije sthhul mrushaa vaadh, viraman vrathe paanch athichaar.
+Sahasaarasa dhaare, sahasaath kaare koonhi prathiye, aju gathu aar abhiyaakhyaan dhidhhu.
+Swadhaaraa manthra bhedh kidhho, aneraa koonhi no manthra aaloch marma prakaashiyo.
+
+Koonhi ne unearth paarvaa.
+Koodi boodhhi dhidhhi.
+Koodo lekh lakhiyo.
+Koodi shaakh bhari
+Thhaapan moso kidhho.
+
+Kanyaa gua ddhor bhoomi sabandhhi, lehne dhehne vyavasaaye waaddh vaddha waaddha karthaa.
+Motakoo jootthu boliyaa. Haathh pag thani gaar dhidhhi.
+Karkaraa modiyaa, marma vachan boliyaa.
+
+Bije sthhul mrushaa vaadh vishaio anero, *je koi athichaar …*
