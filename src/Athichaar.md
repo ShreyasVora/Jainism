@@ -82,7 +82,7 @@ Attha viha hoi naayavo.
 Iriyaa samithi - the ana joye hindia.
 Bhaashaa samithi - the saavadhh vachan bolyaa.
 Eshnaa samithi - the thrun dagal ana paani asu jathu lidhhu.
-Aadhaan bhhanda matha nikhe vanaa samithi - the aashan shayan, upakaran, maathru pramukh, ana poonji jivaakul bhoomi kaaye, mukyu lidhhu.
+Aadhaan bhanda matha nikhe vanaa samithi - the aashan shayan, upakaran, maathru pramukh, ana poonji jivaakul bhoomi kaaye, mukyu lidhhu.
 Paarishtthaa panikaa samithi - the mar muthra slesh maadhik, ana poonji jivaakul bhoomi kaaye, paratthavyu.
 
 Mano gupthi - man maa aartha rodhra dhhyaan dhhyaayaa.
@@ -105,7 +105,7 @@ Ithyeva maadhik, dhesh naga gaam gothra nagri joojoo aa.
 
 Dhev dheharaanaa prabhaav dhekhi, rog aathanka kashta aave. Iha lock par lock aarthhe, poojiyaa maanyaa, sidhha vinaayak, jiraa oolaane, maanyoo ichhyoo.
 
-Bovdhha saankhiyaadhik, sanyaasi, bhharadaa, bhhagatha, lingiyaa, jogiyaa jogi, dharvesha, aneraa dharshaniyaa thano kashta manthra chamathakaar dhekhi.
+Bovdhha saankhiyaadhik, sanyaasi, bharadaa, bhagatha, lingiyaa, jogiyaa jogi, dharvesha, aneraa dharshaniyaa thano kashta manthra chamathakaar dhekhi.
 Paramaarthha jaaniyaa vinaa bhoolaaviyaa mohiyaa kooshaasthra shikyaa saambharyaa.
 
 Shraadh samvathsari hori barev maahi poonam
@@ -148,8 +148,8 @@ Shree samyaktha tha vishaio anero, *je koi athichaar …*
 Pahele sthhul praanvathi paath, viraman vrathe paanch athichaar.
 Vahabandhhi chhavichhe-e, dhvee padh chathuspadh prathiye, rees vase gaaddho ghaav ghaaliyo, gaaddhe bandhhan baandhhiyu.
 
-Adhhik bhaar ghaaliyo, nirlanchhan karma  kidhhaa. Chaaraa paani thani veraa-e, saar sambhhaar na kidhhi. Lehane dhehane kinahi prathiye langhaaviyo. Thene bhookhe aapre jamiy(ae).
-Kanhe rahi maraaviyo, bandhhi khaani ghalaaviyo, sariyaa dhhaan thaaure naakhiya dharaaviyaa bhharadaaviyaa shodhhi navaavariyaa indhhan chhaana ana shodhhiyaa baariyaa the maahi saap vichhi khajooraa sarauraa maakar joovaa gingodaa saahathaa moohaa dhoohaviyaa, roore sthhaanak-e na mookiyaa.
+Adhhik bhaar ghaaliyo, nirlanchhan karma  kidhhaa. Chaaraa paani thani veraa-e, saar sambhaar na kidhhi. Lehane dhehane kinahi prathiye langhaaviyo. Thene bhookhe aapre jamiy(ae).
+Kanhe rahi maraaviyo, bandhhi khaani ghalaaviyo, sariyaa dhhaan thaaure naakhiya dharaaviyaa bharadaaviyaa shodhhi navaavariyaa indhhan chhaana ana shodhhiyaa baariyaa the maahi saap vichhi khajooraa sarauraa maakar joovaa gingodaa saahathaa moohaa dhoohaviyaa, roore sthhaanak-e na mookiyaa.
 
 Kiri makori naa indaa vichhoiaa. Likhh fori uhde-hi.
 Kiri makori dhhimel kaathraa choodel pathangiaa ded-kaa adrasiyaa eeyar koonthaa dhaas masaa bug-a-tharaa maakhi thid pramukh jiv vinatthiyaa.
@@ -264,6 +264,25 @@ Ana shodhhiyaa choolaa sandhhrookiyaa, ghee thel gor chaas thanaa, bhojan ooghaa
 Saathme bhogo pabhogo viraman vrath vishaio anero, *je koi athichaar …*
 
 ## 13. Aantthme
+
+Aantthme anarthha dhanddh, viraman vrathe paanch athichaar.
+Kandha peck koo koo-i-e, kandharp lage, vit chesthaa, haasiya khel, *keli(?)* koothoohal kidhhaa.
+Purus sthri naa haav bhaav rup shrungaar, vishai ras vakhaaniyaa. Raaj kathhaa, bhaktha kathhaa, dhesh kathhaa, sthri kathhaa kidhhi.
+
+Paraai thaathh kidhhi. Thathhaa paishunya panu kidhhu. Aarthra rodra dhhyaan dhhyaayaa.
+Khaandaa, kataar, kosh, koohaadaa, rathh, ukhal, mooshal, agni, gharandi, nisaahe, dhaatharaa, pramukh adhhikaran meli, dhaakshinya lage, maangiyaa aapiyaa.
+
+Paapo padhesh kidhho. Astami chathur dhasiye. Khaandwa dharavaa thanaa nium bhaangiyaa.
+Mookhar panaa lage, asa bandhh vaakiya boliyaa, pramaadhaa charan seviyaa. Andhhore, naahane, dhaathane, pag dhho-ane, khel paani thel chhaatiyaa.
+
+Jilane jiliyaa, jugate ramiyaa. Hichole hichiyaa, naatak prekshanak joyaa. Kadakoo vasthu ddhor levraaviyaa. Karakash vachan boliyaa.
+Aakrosh kidhhaa, abolaa lidhhaa, kar karaa modiyaa, mathsar dhhariyo, sambheraa lagaadiya, shraap dhidhhaa.
+
+Bhesaa saandh hooroo kookaraa, svaanaa dhick joojaariyaa. Jujathaa joyaa khaadhi lage adhe khaay chinthavi, maathi mitthu kana kapaasiyaa, kaaj winchaapiyaa, the upar betthaa.
+
+Aali vanaspathi khoondhi sooi sasthraa dhick nipjaaviyaa. Ghani nindhraa kidhhi, raag dhvesh lage, ek ne rudhhi parivaar vaanchhi, ek ne mruthiyu haani vaanchhi.
+
+Aantthme anarthha dhanddh viraman vrath vishaio anero, *je koi athichaar …*
 
 ## 14. Nau-me
 
