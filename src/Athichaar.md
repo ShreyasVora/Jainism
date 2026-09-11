@@ -286,7 +286,24 @@ Aantthme anarthha dhanddh viraman vrath vishaio anero, *je koi athichaar …*
 
 ## 14. Nau-me
 
+Nau me saamaayk vrathe paanch athichaar.
+Thiviye dhupaniyaane, saamaayk lidhhe, manne aahat dhohat chinthaviyoo. Saavadh vachan boliyaa, sharir ana pari lehyu halaavyu, chhathi veraae saamaayk na lidhhu. Saamaayk lai ughaare mookhe boliyaa. Oongh aavi, vaathvi kathhaa, ghar thani chinthaa kidhhi.
+
+Vij dhivaa thani, uje hee hui.
+Kan kapaasiyaa, maati, mitthu, khadi, dhhaavadi arane to, paashaan pramukh chaapiyaa.
+Paani nil full sevaai, hariyakaay beeyakaay ithyaadhi aabhadiyaa.
+Sthri thiriyanch thanaa niranthar paraspar sanghatth hoovaa.
+Moohapathio sanghati,  saamaayk ana pugiyu paariyu, parvu visaariyu.
+
+Naume saamaayk vrath vishaio anero, *je koi athichaar …*
+
 ## 15. Dhasme
+
+Dhasme dhesaa vagaasik vrathe paanch athichaar.
+Aanaa vane pesa vane, aanaa vana paoge, pesa vana paoge, sadhaanu vaai, ruaanu vaai, bahiyaa puga lakhe ve, niamith bhoomi kaa maahi. Baahrethhi kaai anaaviyu.
+Aapane kanhe thhaki bahaar kaai mokliyoo, athhavaa rup dhekhaari, kkakro naakhi, saahj kari, aapan panu chhathu janaaviyu.
+
+Dhasme dhesaa vagaasik vrath vishaio anero, *je koi athichaar …*
 
 ## 16. Agiyaarme
 
